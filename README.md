@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello !👋   My name is Ming Che (Derek) Yang<br><br>🏫 Currently a graduate student @ UIUC | MCS<br>🖥️ Actively looking for a Internship<br>❤️ Always seeking for new knowledge and experience!<br>✔️ Pronouns : He/His<br>✉️ derekmcyang.work@gmail.com
+Hello !👋   My name is Ming Che (Derek) Yang<br><br>🏫 Currently a graduate student @ UIUC | MCS<br>🖥️ Actively looking for an Internship<br>❤️ Always seeking for new knowledge and experience!<br>✔️ Pronouns : He/His<br>✉️ derekmcyang.work@gmail.com
 
 
 ## 🌐 Socials:
